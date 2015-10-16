@@ -23,4 +23,4 @@ this is simple education notes for university of pamukkale bachelor of science a
 
 [onur yurtturk](https://twitter.com/oyurtturk)
 
-[Məhəmməd Şxiyev](https://twitter.com/mehemmed_sxiyev)
+[məhəmməd şxiyev](https://twitter.com/mehemmed_sxiyev)
